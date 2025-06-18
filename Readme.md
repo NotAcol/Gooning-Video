@@ -93,7 +93,8 @@ If we used the same logic on this excerpt from the systematic review as the auth
 To further demonstrate the absurdity of the authors line of thinking.
 
 ![](20250618151108.png)
-If we take that same line of thought with their other findings we will conclude that the mind of adolescents is in fact so underdeveloped that the simple saving of mommy milkers to their hard drive will cause them to contract diseases 52% more often than their non downloading of mommy milkers counterparts. (self reported)
+
+If we take that same line of thought with their other findings we will conclude that the mind of adolescents is in fact so underdeveloped that the simple saving of mommy milkers to their hard drive will cause them to contract diseases 52% more often than their non downloading mommy milkers counterparts. (self reported)
 
 ![](20250618150156.png)
 
