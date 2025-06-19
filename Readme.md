@@ -1,4 +1,5 @@
 > I have decided to join the war on gooning, on the side of gooning.
+
                                                   - Albert Einstein
 
 [![Video](https://img.youtube.com/vi/LzMi2VsKBIs/0.jpg)](https://www.youtube.com/watch?v=LzMi2VsKBIs)
